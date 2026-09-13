@@ -1,1 +1,0 @@
-# domgallodesign.github.io
